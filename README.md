@@ -5,8 +5,8 @@
 
 ## I'm a Husband, Father, Researcher and Developper !
 
-- 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
-- 🥅 2020 Goals: Diversify my projects
+- 🌱 I’m currently learning everything new and useful
+- 👯 I’m looking for collaborations between ecology, sociology and computing sciences 
+- 🥅 2021 Goals: Diversify my projects
 <br />
 
