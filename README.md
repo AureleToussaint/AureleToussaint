@@ -7,6 +7,6 @@
 
 - 🌱 I’m currently learning everything new and useful
 - 👯 I’m looking for collaborations between ecology, sociology and computing sciences 
-- 🥅 2022 Goals: Diversify my projects
+- 🥅 2024 Goals: Diversify my projects
 <br />
 
